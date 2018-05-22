@@ -18,7 +18,7 @@
 **Tim Infrastruktur**   @bimosaurus @bk201_44 @blkct @endoch @harsxv @jlcnate @Resxar
 
 ## Donatur Tulisan
-Alexander Lumbantobing, Samsul Huda, Epakdhe, Human_Error, Anton Setiyawan, Andika Triwidada, Muhammad Shulkan Efendi, Wahyu Bimo Sukarno, M. Prasodjo, Arizona Firdonsyah, Harry Suryapambagya, Girindro Pringgo Digdo, y3dips, Dyan Galih Nugroho Wicaksi, Dedy Hariyadi, Muhammad Sahputra, Ikhwan Dirga Pratama
+Alexander Lumbantobing, Samsul Huda, Epakdhe, Human_Error, Anton Setiyawan, Andika Triwidada, Muhammad Shulkhan Efendi, Wahyu Bimo Sukarno, M. Prasodjo, Arizona Firdonsyah, Harry Suryapambagya, Girindro Pringgo Digdo, y3dips, Dyan Galih Nugroho Wicaksi, Dedy Hariyadi, Muhammad Sahputra, Ikhwan Dirga Pratama
 
 ## Personal 
 @agambewe @ahmad_prayitno @barepset @BayuFedra @bernadsatriani @BlackMask21 @blowfis @da12m @emaland @fauznawnd @ibnuislamy @JokerDX11 @lantip @masbog @orangmiliter @rudie_d @ryirwansyah @r_u_l_l_y @tomble
